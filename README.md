@@ -1,3 +1,3 @@
 # Cibertec 📜
 
-* * Autor : Jorge Jacinto *
+* * Autor : James nicho obregon *
